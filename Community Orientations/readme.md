@@ -1,1 +1,1 @@
-Submissions for review regarding communikty orientation analysis with key customers
+Submissions for review for Pod A from the community orientation analysis with key customers
